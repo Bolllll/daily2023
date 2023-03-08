@@ -1,4 +1,17 @@
 # 23-03
+## 3/8 - 30首吉他
+- A time for us - 1968年罗密欧和朱丽叶电影的主题曲
+- The theme from Love Story - 爱的故事主题曲
+- Sound of silence - 毕业生主题曲
+- Love Paradise - 爱的天堂-陈慧琳
+- La Sovia - 
+- La playa - 一首有名的吉他曲
+- Million rose - 百万玫瑰花 - 拉脱维亚
+- Love theme from the God father - 教父的主题曲 - 华尔兹
+- Romance De Amor - 爱的罗曼史 - 西班牙吉他曲
+- More than I can say - 中文版-爱你在心口难开
+
+
 ## 3/5
 苏伯特的小夜曲
 - Franz Schubert - Serenade
